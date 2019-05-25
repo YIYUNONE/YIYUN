@@ -5,3 +5,4 @@
 ## 若网址有变会在此更新，建议收藏此页面以防失联
 联系方式：
 - Telegram：[@YIYUNONE](https://t.me/yiyunone)
+- 邮箱：<patrifckr@gmail.com>
