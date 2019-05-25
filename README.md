@@ -7,4 +7,3 @@
 ## 若网址有变会在此更新，建议收藏此页面以防失联
 联系方式：
 - Telegram：[@YIYUNONE](https://t.me/yiyunone)
-- QQ：[2712247986](https://wpa.qq.com/msgrd?v=3&uin=2712247986&site=qq&menu=yes)
