@@ -1,6 +1,6 @@
 # 亦云
 **网址：https://yiyun.me** <br>
-**备用网址1：https://亦云.gq** <br>
+**备用网址1：https://yiyun.gq** <br>
 **备用网址2：https://亦云.club** <br>
 **购买续费：https://yiyun.me/user/shop** <br>
 ## 若网址有变会在此更新，建议收藏此页面以防失联
